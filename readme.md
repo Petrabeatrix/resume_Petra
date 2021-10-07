@@ -1,3 +1,3 @@
 
 ## 
-Petra Nichols
+ - Petra Nichols
